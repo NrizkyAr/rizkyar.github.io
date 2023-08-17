@@ -1,2 +1,0 @@
-# rizk.github.io
-pemulabanget!!
