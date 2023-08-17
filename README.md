@@ -1,2 +1,2 @@
-# rizkyar.github.io
+# rizk.github.io
 pemulabanget!!
